@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jarel-d
 - 👀 I’m interested in writing, reading, and video games!
 - 🌱 I’m currently learning data analytics!
-- 
+  
 - 📫 How to reach me? here! @jarel-d
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i got a cat!
